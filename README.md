@@ -155,3 +155,8 @@ No se observan variaciones acuciantes entre distintos grupos de edad ni de géne
 Lo conveniente sería seguir el consejo de los expertos y evitar el uso de pantallas antes de irse a la cama con un tiempo prudencial para no alterar nuestros ciclos circadianos. Tener una constancia con los horarios de dormir y comer. 
 
 En el caso del uso de pantallas al acostarse, lo ideal sería usarlas con un porcentaje de brillo bajo y evitar el consumo de vídeos de formato corto.
+
+
+✒️ Autores
+
+Lara Fernández
